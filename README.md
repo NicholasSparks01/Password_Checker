@@ -15,5 +15,4 @@ good password hope this helps someone!
 
 Enjoy,
 
-Nicholas Sparks
-Future Cyber Security Specialist
+Nicholas Sparks, Future Cyber Security Specialist
